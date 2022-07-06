@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Theihtheih
+- 👋 Hi, I’m @Cherry Fun
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning any programm language
 - 💞️ I’m looking to collaborate on ...
